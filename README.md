@@ -1,1 +1,2 @@
 smart eco friendly city model using solar power recycling and technology to create a cleaner and green are future s smart sensor solar power based cycling clean air system purpose to promote sustainable living through smart technology future ideas and transport or green system and promote your ideas.
+https://yourusername.github.io/scholarhub/
